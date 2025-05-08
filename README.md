@@ -37,6 +37,7 @@ For example, if you deposit $100, your account will be credited with $220 – $1
 - [Olymp Trade Promo Code](https://github.com/Analyst-Reviewer/olymotrade-promocode)
 - [IQ Option Promo Code](https://github.com/Analyst-Reviewer/iq-option-promocode)
 - [Exnova Promo Code](https://github.com/Analyst-Reviewer/exnova-promo-code)
+- [Exnova Review for the LATAM in Spanish](https://github.com/Analyst-Reviewer/Exnova-es-confiable)
 
 ## Why Choose Expert Option?
 

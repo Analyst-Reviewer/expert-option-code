@@ -56,3 +56,5 @@ Don't miss the opportunity to start trading with increased capital. Use the prom
 
 **Disclaimer:** This article contains a referral link. By using it, you support us while gaining access to exclusive bonuses.
 
+## Follow us:
+[Mirror](https://mirror.xyz/0x80FCCE629e74dD107DE0a4050158385571b0667f)

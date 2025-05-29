@@ -2,6 +2,8 @@
 
 If you're looking to boost your trading capital while using a **trusted online trading platform**, we have great news! By using the **promo code `G1014038001`** through a special link, you will receive a **120% welcome bonus on your first deposit**. In this article, we’ll explain how to use the promo code, what benefits it offers, and why **Expert Option** is considered one of the best platforms for **binary options trading**.
 
+[Go to the official Expert Option site to claim your bonus.](https://r.shortlify.com/?prefid=1014038001&brand=Bgjcgw)
+
 ## What is Expert Option?
 
 **Expert Option** is a leading **online trading platform** that offers access to a wide range of **financial instruments**, including **binary options**, **forex**, **cryptocurrencies**, and **stocks**. It stands out for its **user-friendly interface**, **lightning-fast execution speed**, and various features that cater to both beginner and professional traders. The platform also offers **educational tools**, a **demo account**, and strong **regulatory compliance** for added security.
